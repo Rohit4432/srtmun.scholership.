@@ -1,1 +1,1 @@
-# srtmun.scholership.
+# scholarshipdepartmaent
